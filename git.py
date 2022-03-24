@@ -1,1 +1,0 @@
-"Hai kelompok 08, 18, 28"
